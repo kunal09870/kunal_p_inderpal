@@ -1,4 +1,1 @@
-Cats don't need a lot of space to thrive.As long as you can fit their essentials, such as you can fit their essentials,such as litter boxes and food or water dishes.
-Once you own the pet, there are plenty of expenses you will have to incur, from supplies to caretakers beacause cats toys are cheaper tham dog toys
-cats are ,uch quieter tham the dogs, cats certain do make noise like "meow"when that mean "I'm hungry".
-cats are natural-born hunters,so it's in their DNA to stalk,hunt and pounce on their prey.So you cannot see mouse in the house where cats are kept.
+
